@@ -2,7 +2,7 @@
 - 👀 I’m interested in photography.
 - 🌱 I’m currently learning to code with JS.
 - 🎓 Bachelor's Degree in Public Relations.
-
+Come and see my work at http://www.fiverr.com/s/KeA50WE .
 
 
 <!---
